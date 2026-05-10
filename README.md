@@ -1,2 +1,0 @@
-# Parenting-Diary
-Parenting Diary
